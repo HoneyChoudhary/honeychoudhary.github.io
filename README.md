@@ -1,2 +1,2 @@
-# tanmaykulkarni.github.io
+# honeychoudhary.github.io
 My Website
